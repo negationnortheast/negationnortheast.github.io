@@ -1,1 +1,1 @@
-# negationnortheast.github.io
+# negationnortheast
